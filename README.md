@@ -1,2 +1,2 @@
 # trabalhopoligonosed
-tortura 1
+dor.
